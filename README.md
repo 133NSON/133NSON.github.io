@@ -1,1 +1,1 @@
-Blog address update: http://133nson.space
+New blog address: http://133nson.space
